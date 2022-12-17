@@ -12,6 +12,10 @@ Geraldo Valentino De Jesus (16522227)
 
 Lydia Gracia               (19622217)
 
+### Link YouTube Presentasi:
+
+https://youtu.be/kou0YXx0rnw
+
 ### Link Google Drive Kelompok:
 
 https://drive.google.com/drive/folders/1wP-TOuyxTMSsZf-QhW7G9wH3rvWk8cTQ
